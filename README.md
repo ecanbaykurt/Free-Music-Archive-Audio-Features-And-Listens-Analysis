@@ -1,4 +1,4 @@
-Free Music Archive (FMA): Music Features and Listens Analysis
+Music Archive (FMA): Music Features and Listens Analysis
 
 Group Member: Lifu (Leaf) Li, Lujia (Lucia) Yu, Emre Can Baykurt, Pin-Hao (Johnny) Pan, Kuang-Ching (Amanda) Ting
 
